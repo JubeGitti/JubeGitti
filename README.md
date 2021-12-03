@@ -1,4 +1,4 @@
-### Hi there, en osta mitään 👋
+### Hi there 👋
 
 - 🔭 I’m currently working server called 𝙑𝙖𝙡𝙠𝙤𝙢𝙖𝙖𝙍𝙋
 - 🌱 I’m currently repairing my moped called Yamaha DT
